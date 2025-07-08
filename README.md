@@ -504,8 +504,8 @@ SOFTWARE.
 *Java Developer | UI Innovator | System Design Enthusiast*
 
 - **GitHub**: [@Uwami-Mgxekwa](https://github.com/Uwami-Mgxekwa)
-- **Email**: [contact@uwami.dev](mailto:contact@uwami.dev)
-- **LinkedIn**: [Uwami Mgxekwa](https://linkedin.com/in/uwami-mgxekwa)
+- **Email**: [contact@uwami.dev](mailto:uwamimcdonald@gmail.com)
+- **LinkedIn**: [Uwami Mgxekwa](https://www.linkedin.com/in/uwami-mgxekwa-bb8235283?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)
 
 ---
 
